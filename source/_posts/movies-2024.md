@@ -29,7 +29,10 @@ date: 2024-07-21
 24. Society of the Snow
 25. Inside Out
 26. Inside Out 2
-27. Vicky Christina
+27. Vicky Christina Barcelona
 28. Chernobyl
-29. Interiors
-30. Taxi Driver (rewatch)
+29. Interiors by Woody Allen
+30. 宇宙探索编辑部
+31. Taxi Driver by Martin Scorsese (rewatch)
+32. 海滩的一天
+33. 绿洲 by 李沧东
