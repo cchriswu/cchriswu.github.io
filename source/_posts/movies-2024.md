@@ -3,8 +3,8 @@ title: 2024 观影记录（持续更新）
 date: 2024-07-21
 ---
 
-1. Paris, Texas
-2. Perfect Days
+1. Perfect Days
+2. Paris, Texas
 3. 飞驰人生 2
 4. 首尔之春
 5. 哈尔的移动城堡
@@ -31,8 +31,12 @@ date: 2024-07-21
 26. Inside Out 2
 27. Vicky Christina Barcelona
 28. Chernobyl
-29. Interiors by Woody Allen
+29. Interiors
 30. 宇宙探索编辑部
-31. Taxi Driver by Martin Scorsese (rewatch)
+31. Taxi Driver (rewatch)
 32. 海滩的一天
-33. 绿洲 by 李沧东
+33. 绿洲
+34. 假如我是真的
+35. 魔女宅急便
+36. 忠犬八公物语
+37. 东京物语
